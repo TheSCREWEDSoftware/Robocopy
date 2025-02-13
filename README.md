@@ -1,0 +1,1 @@
+I wanted to share this with a friend, google doesn't let me because is a virus. Discord doesn't let me because is a virus. The ducker forgot his Telegram password so he can't use telegram. So github it is. You're free to run a virus tool on this for "virus".
